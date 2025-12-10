@@ -1,0 +1,2 @@
+# Dilla-solidaritas-
+Semuanya diam 
